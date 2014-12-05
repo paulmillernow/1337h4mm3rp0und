@@ -1,4 +1,4 @@
-1337h4mm3rp0und
+Read Me'z
 ===============
 
-You don't even want to know.
+I r smart. U r stopid. Get hamMer'd.
